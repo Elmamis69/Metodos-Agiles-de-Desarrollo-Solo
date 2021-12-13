@@ -1,3 +1,3 @@
 Equipo 5:
-Jesus Adrian Felix Alvarez
+Adrian Felix
 Yo solito
